@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aishvarya47
 - 👀 I’m interested in learning python,c and c++
 - 🌱 I’m currently learning c and c++
-- 📫 How to reach me:instgram:riya_granger
+- 📫 How to reach me:instgram:aishvaryaaaa_
 - 😄 Pronouns she/her from india
 - ⚡ Fun fact:I am a small scale enterpreneur
 
